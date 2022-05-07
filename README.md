@@ -1,1 +1,1 @@
-# vipulgraphics.com
+# vipulgraphics
